@@ -1,2 +1,2 @@
-# tnt-osu-skins
+# [tnt](https://osu.ppy.sh/users/16803668) osu! skins
 osu skins
