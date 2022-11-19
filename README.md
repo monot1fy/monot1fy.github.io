@@ -12,6 +12,6 @@
 # [zibi instafade edit](https://www.mediafire.com/file/bonqdrvuyzbbmwr/-_zibi_instafade.osk/file)
 ![image](https://i.imgur.com/08PUuj6.jpg)
 
-# [Sytho (Rafis)](https://www.mediafire.com/file/afwzy232nd0euca/Rafis_2018-03-26_HDDT.osk/file)
+# [sytho (Rafis)](https://www.mediafire.com/file/afwzy232nd0euca/Rafis_2018-03-26_HDDT.osk/file)
 ![image](https://i.imgur.com/lrwxsID.jpg)
 
