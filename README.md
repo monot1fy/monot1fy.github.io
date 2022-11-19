@@ -5,3 +5,13 @@
 
 # [tnt waitwhatwolf edit](https://www.mediafire.com/file/d7aj1c7pt2f3wwq/tntwaitwhatwolf_edit.osk/file)
 ![image](https://i.imgur.com/SQpZ110.jpg)
+
+# [tekkito remake](https://www.mediafire.com/file/9sspxlt00h98dzb/tekkito.osk/file)
+![image](https://i.imgur.com/cGHSNHi.jpg)
+
+# [zibi instafade edit](https://www.mediafire.com/file/bonqdrvuyzbbmwr/-_zibi_instafade.osk/file)
+![image](https://i.imgur.com/08PUuj6.jpg)
+
+# [Sytho (Rafis)](https://www.mediafire.com/file/afwzy232nd0euca/Rafis_2018-03-26_HDDT.osk/file)
+![image](https://i.imgur.com/lrwxsID.jpg)
+
