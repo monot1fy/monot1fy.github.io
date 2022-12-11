@@ -6,6 +6,9 @@
 # [tnt waitwhatwolf edit](https://www.mediafire.com/file/d7aj1c7pt2f3wwq/tntwaitwhatwolf_edit.osk/file)
 ![image](https://i.imgur.com/SQpZ110.jpg)
 
+# [Monko pipes](https://www.mediafire.com/file/fuf50zf8ydz8vjb/Monkopipes.osk/file)
+![image](https://i.imgur.com/BLVfZ0d.jpg)
+
 # [tekkito remake](https://www.mediafire.com/file/9sspxlt00h98dzb/tekkito.osk/file)
 ![image](https://i.imgur.com/cGHSNHi.jpg)
 
