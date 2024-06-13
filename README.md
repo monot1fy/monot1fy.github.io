@@ -1,20 +1,12 @@
 # [tnt](https://osu.ppy.sh/users/16803668) osu! skins
 
-# [tnt funorange edit](https://www.mediafire.com/file/45koapd3hu9o1yd/tntfunorange.osk/file)
-![image](https://i.imgur.com/cdV1ht2.jpg)
+# [DT SKIN](https://joebunga.s-ul.eu/vz9WkfYy)
+![image](https://joebunga.s-ul.eu/nAI3jEAp)
 
-# [tnt waitwhatwolf edit](https://www.mediafire.com/file/d7aj1c7pt2f3wwq/tntwaitwhatwolf_edit.osk/file)
-![image](https://i.imgur.com/SQpZ110.jpg)
+# [ARISTIA EDIT](https://joebunga.s-ul.eu/bn3kIKR5)
+![image](https://joebunga.s-ul.eu/kY4ZQPB8)
 
-# [Monko pipes](https://www.mediafire.com/file/fuf50zf8ydz8vjb/Monkopipes.osk/file)
-![image](https://i.imgur.com/BLVfZ0d.jpg)
+# [MAIN](https://joebunga.s-ul.eu/h20zJ4Je)
+![image](https://joebunga.s-ul.eu/mS4vwiQg)
 
-# [tekkito remake](https://www.mediafire.com/file/9sspxlt00h98dzb/tekkito.osk/file)
-![image](https://i.imgur.com/cGHSNHi.jpg)
-
-# [zibi instafade edit](https://www.mediafire.com/file/bonqdrvuyzbbmwr/-_zibi_instafade.osk/file)
-![image](https://i.imgur.com/08PUuj6.jpg)
-
-# [sytho (Rafis)](https://www.mediafire.com/file/afwzy232nd0euca/Rafis_2018-03-26_HDDT.osk/file)
-![image](https://i.imgur.com/lrwxsID.jpg)
 
